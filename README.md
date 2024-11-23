@@ -1,16 +1,15 @@
-## Hi there 👋
+# HEY, YOU! YEAH, YOU.
+☆ ⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
 
-<!--
-**doomghouls/doomghouls** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+hello folks , my name is demian and you're probably here from ponytown!
+this is just a small overview of my boundaries and extra info. please read it if you plan on interacting with me, it's not only appreciated but can also stop drama/misunderstandings!!
 
-Here are some ideas to get you started:
+꩜ i am always okay with c+h but conversation might be awkward if you try. unless you can see me sitting and talking with friends, feel free to come say hi and interact!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+꩜ if you randomly approach me and start booping, i will likely ignore you (if i'm on tab).
+
+꩜ inspiration from my skins is fine and asking is unnecessary, but i don't allow copying & i won't be afraid to confront you on it.
+
+꩜ i DO NOT RESPECT touch trigger/touch discomfort. i actively make fun of it.
+
+꩜ i do not accept random friend requests!!! please at least sit with me first!!! >_<
